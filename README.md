@@ -1,0 +1,2 @@
+# slovesobyt
+objevujisevety
